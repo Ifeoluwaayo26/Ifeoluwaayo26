@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Ifeoluwaayo26
+- 👋 Hi, I’m IFEOLUWA OLUWALANA
 - 👀 I’m interested in getting thngs done
 - 🌱 I’m currently learning Data analysis
-- 💞️ I’m 
+- 💞️ I’m looking to work on new and existing projects
 - 📫 You can reach me via email and linkedIn (ifeoluwaoluwalana26@gmail.com ;  www.linkedin.com/in/ifeoluwa-oluwalana-205901206)   
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love working on Data, I smile for fun and I enjoy singing 
